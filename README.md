@@ -15,3 +15,5 @@ Este espacio fue creado para compartir un poco del conocimiento que he adquirido
 Espero te guste :tw-1f60a: :tw-1f60a:
 
 Si es de ser así... Qué tal una :tw-2b50: ?
+
+![](https://i.imgur.com/MxmPYYZ.jpeg)
